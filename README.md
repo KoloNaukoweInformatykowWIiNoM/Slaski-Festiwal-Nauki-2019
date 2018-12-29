@@ -15,4 +15,4 @@ Drive among giants @aows ► [Kliknij mnie!](https://unsplash.com/photos/FrSEEdY
 
 
 Made with 😺 and 💝,  
-by Laura Dymarczyk, Adrian Rupala
+by Laura Dymarczyk, Kamil Kasperski, Adrian Rupala
