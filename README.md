@@ -11,7 +11,7 @@ Python 3.7 ► [Pobierz mnie!](https://www.python.org/downloads/)
 
 ## Uznania twórczości
 Prezentacja w wersji Google Slides ► [Kliknij mnie!](https://docs.google.com/presentation/d/1xxlsG3orE91Dpe0mdsJvSLgZIdIKAO_MSTxVStRzzGQ/edit?usp=sharing)  
-Drive among giants @aows ► [Kliknij mnie!](https://unsplash.com/photos/FrSEEdYr418)
+Drive among giants @aows ► [Kliknij mnie!](https://unsplash.com/photos/FrSEEdYr418)  
 Partnerem merytorycznym prezentacji jest firma Whiteaster ► [Kliknij mnie!](https://whiteaster.com)
 
 Made with 😺 and 💝,  
